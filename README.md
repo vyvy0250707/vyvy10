@@ -22,4 +22,4 @@
 如果你正在寻找一个免费的、高清的日本AV免费在线播放平台，来试试我们推荐的这些站点吧。这里有最新的番号、女优影片，高清无水印，不卡顿的流畅播放，无广告干扰，给你提供最好的观影体验。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vyvy0250707/vyvy10 ）</span>
